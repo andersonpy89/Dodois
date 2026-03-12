@@ -179,6 +179,14 @@ https://github.com/andersonpy89/Dodois
 
 ---
 
+<img width="1892" height="846" alt="image" src="https://github.com/user-attachments/assets/88e2e370-be98-48fa-a939-b626737d4ed7" />
+
+<img width="1900" height="905" alt="image" src="https://github.com/user-attachments/assets/720c9677-328d-4475-9dd0-45aba58dafa3" />
+
+<img width="1894" height="904" alt="image" src="https://github.com/user-attachments/assets/23093ad6-c2cb-4261-a976-19e7b8991837" />
+
+
+
 # 👨‍💻 Autor
 
 Anderson Teixeira
